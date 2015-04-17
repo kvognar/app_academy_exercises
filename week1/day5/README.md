@@ -1,1 +1,1 @@
-### Partner today: (Jonathan Bruno)[https://github.com/jj57347]
+### Partner today: [Jonathan Bruno](https://github.com/jj57347)
